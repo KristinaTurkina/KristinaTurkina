@@ -9,6 +9,4 @@ I have completed more than 10 projects, which can be viewed at https://github.co
 
 I am eager to develop in the field of data analytics and apply analytical skills to solve real-world problems.
 
-I am ready to complete a test assignment and pass an interview.
-
 Follow me on Telegram https://t.me/kristinaturkina .
